@@ -1,1 +1,1 @@
-# laborator9
+# laborator9 Andrei Burian
